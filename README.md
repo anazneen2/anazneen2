@@ -11,4 +11,4 @@ I'm a first year student studying Bachelor of Computer Science (Network and Secu
 
 ### 🌐 Connect with Me
 - 📧 Email: [afeefanazneen2@gmail.com]
-- [LinkedIn](https://linkedin.com/in/afeefanazneen](https://www.linkedin.com/in/afeefa-nazneen-13b97a344/)
+- [LinkedIn](https://linkedin.com/in/afeefanazneen](https://www.linkedin.com/in/afeefa-nazneen-13b97a344/ )
